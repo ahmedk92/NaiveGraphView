@@ -1,3 +1,1 @@
-
-https://user-images.githubusercontent.com/11476927/114312678-c9e6ab00-9af3-11eb-865e-f3bd01403474.mp4
-
+![Screen Recording 2021-04-11 at 6 22 17 PM](https://user-images.githubusercontent.com/11476927/114313047-331aee00-9af5-11eb-805b-a8d9da7da0b1.gif)
